@@ -29,5 +29,9 @@ Things need to notice:
 - eat with suitable sauces
 - eat when they are hot
 
+Recipe Type: 
+- Mordern
+- Traditional
+
 Other appetizers to go: 
 [Vietnamese Appetizers](https://www.hungryhuy.com/vietnamese/appetizers/)
