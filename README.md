@@ -40,7 +40,7 @@ Other appetizers to go:
 
 **Main dishes**
 
-For me, the main dishes of Vietnamese cuisine are incredibly diverse, so I have a lot of choices, among which there are three special dishes that I would like to share with everyone
+I am Gia Khang Ho, you can call me Khang. I was born and raised in Ho Chi Minh City, one of the largest tourist cities in Vietnam. Therefore, the culinary scene is very diverse, representing various regions across the country. I have many choices, among which I recommend 3 main dishes that are very suitable for everyone to explore Vietnamese cuisine.
 
 1. Pho dat biet - Special Pho : Special combination beef rice noodle soup with rare and brisket beef, beef balls and stripe
 
